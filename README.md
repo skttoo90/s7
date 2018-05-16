@@ -1,1 +1,10 @@
-# 7she
+http://www.atii7.com
+http://www.avec9.com
+http://www.b39l4.com
+http://www.bao10.net
+http://www.bbiom.com
+http://www.bclcy.com
+http://www.bcsf5.com
+http://www.bfa78.com
+http://www.bhsa7.com
+http://www.bhyyk.com
